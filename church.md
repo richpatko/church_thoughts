@@ -1,0 +1,39 @@
+# Gyülekezet
+
+## A tér célja
+
+Hangsúlyozzuk minden dolog Isten által való teremtését. A gyülekezet nem különlegesebb hely, mint bármely másik. Ebből következőleg nem a helyszín és az esemény felemelése történik, hanem az emberek közötti téré - ami nem működik rendezvényekkel, programokkal, rendszerekkel, hanem emberi részvétellel. Az emberi részvétel néha munka - hogy megadom azt a minimumot, ami szükséges a tér fenntartásához, máskor pedig az állapotunk elismerése Isten előtt - hogy ma nem megy, és a jelenlétemnél többet nem tudok adni. Ezeket a dolgoknak a "szolgálóknak", "vezetőknek" elég rugalmasan kell kezelniük, és egy olyan minimális liturgiával rendelkezni, ami hangsúlyozza Krisztus munkáját, megváltását, és a "kárpit kettéhasadását", azaz, hogy minden ember beletartozik a jelenlétbe. Ebből következőleg a tér elsősorban az ember Isten előtti leborulásának, megnyugvásának, és terhei letételének a helye, a közösség ebben való különböző mértékű részvételével.
+
+## Liturgia
+
+### Alapok
+
+Az Istenhez való tartozás (amely munkát Krisztus végezte el, és sem kiérdemelni nem tudjuk, sem nem szabad hatalmi jelvénnyé válnia) kifejeződése egyszerű cselekdetek által, jelentése "az emberek, a közösség munkája". Az úrvacsora/Szent Eukarisztia, a Krisztus megtört testéről és kiontott véréről való megemlékezés a Krisztussal való transzcendens egység (János 17:23), a Krisztus szenvedéseiben az emberré lett Isten egysége az emberi szenvedéssel, illetve az emberek egymás istenségével és emberségével való egysége. Ez egy kihagyhatatlan része a liturgiának.
+
+A másik fontos aspektus a közös, előre definiált ima. Az evangelikális kultúrában fontos Istennek saját gondolatokat kifejezni, és ebből egy idő után kialakult az egy ember által elmondott ima retorikai eszköze. Ez viszont sok mindenre felhatalmazhatja a mikrofont viselő személyt, és Isten nevét sok kontextusban felemelheti. Egy új kultúra inkább a transzcendens igazságok elismétléséhez ragaszkodik - hitmegvallások, Miatyánk, Jézus-ima, illetve új imák - megtartva az egyensúlyt a megújulás és a szavakkal való óvatosság között. Megállunk Isten előtt, és letesszük a fájdalmakat, az örömöket, és minden dolgot, ami homályosította a lencsénket, amivel megláthatjuk Őt. Ezzel együtt semmilyen korlátozást nem teszünk az emberek egyéni imaéletére, de ebben a térben óvatosabbak vagyunk az akármiért való akármilyen imával.
+
+### Dicsőítés
+
+Az evangelikális kultúrában a dicsőítés professzionális könnyűzenei együttest jelent, a hangerő, a felemelkedő szakaszok, és a dobcrescendok érzelmi eszközeivel. Nem tagadjuk ezek hasznosságát, viszont a dicsőítő tagok kiégését, a technikai felszereltség és elvárások elbonyolódása által való felörlődését elvetjük. Ebből következőleg nincs minimális dicsőítő felszereltés - egyetlen éneklésben jártas ember, aki helyesen adja meg az alaphangot, elégséges. Egyetlen bluetooth hangszóró, és nyomtatott szövegek elégségesek. A közös éneklés pszichológiai hatásai, és Isten szabadsága, hogy ezeket kihasználja Isten dolgainak a kommunikációjára, nincsenek műfajba és technikai felszereltségbe zárva.
+
+Elvetjük a dicsőítés harcos voltát. Nem helyezünk egyénekre olyan felelősséget, hogy a helyes szertartásokkal "szellemi módon" megváltoztassák emberek életét, illetve egyéb gazdasági vagy politikai változókat - mindez a változó világ része, és az Örökkévaló Isten nem ezektől függ. Természetesen a szenvedő Krisztus ezzel együtt teljes szolidaritásban van minden világi körülmény által okozott szenvedésünkkel, de nem tekinthetünk Isten örökkévalóságának felemelésére, mint egy pénznemre, ami megoldja ezeket a helyzeteket. Isten szuverén akarata, hogy mivel mit tesz. Keressük inkább, hogy emberként hogyan lehetünk része a másik ember imameghallgatásának - ha más nem, együttérzéssel és irgalommal.
+
+Nyitottak vagyunk a kétezer éves tradíció bármely részét felhasználni az Isten örökkévalóságának és Krisztus munkájának a felemelésére, és az emberi lélek megpihenésére - ha ezekre inspirál, akkor jó - mindegy, melyik egyház, kontextus, és a történelmi kor terméke.
+
+### Kísérletezés
+
+Kísérletezzünk liturgiákkal - legyen csendesség, legyen bizonyságmegosztás tervezet nélkül, legyenek festmények, versek, gondolatok felvetése - hangsúlyozzuk ezek emberi voltát, vegyük le a hangsúlyt Isten parancsairól és annak való engedelmességről - hagyjuk, hogy a légkör maga változtasson meg minket. Mindennek ellenére legyünk időben fegyelmezettek - ne beszéljünk órákig, a lényegre törekedjünk. Isten halk, szelíd hangja nem szaporítja a szót. A fő liturgia ne nyúljon a végtelenbe, hadd menjen, aki nem tud sokáig maradni.
+
+### Tanítás
+
+Nyissuk meg a teológiai pince ajtaját, és osszunk meg különböző, akár ellentmondó gondolatokat. Hangsúlyozzuk az emberi életet elősegítő gondolatokat - a krisztusi identitást, az elfogadottságot, az Istencsaládságot (Efezus 2:19). Krisztus munkája egyszeri és minden emberre kihat. Ebből következőleg kerüljük az ellenségképgyártást, az ijesztgetést, a félelem növelését, és annak hangsúlyozását, hogy a jelenlevő rendszer megvéd ezektől. Az ilyen jellegű védelem értéktelen lesz abban a pillanatban, hogy beszélünk róla. A feladat a valódi szolidaritás az emberek mindennapi problémáival - mert a szamaritánus a felebarátunk, és egyszer váratlan pillanatban segíthet nekünk.
+
+Kerüljük a premilleniális elragadtatás hangsúlyozását. Beszéljünk Dániel és János Apokalipszisének kritikai olvasatáról, és legyünk bátrak nem egyértelmű választ adni az utolsó idők kérdéseire. Ha említjük is, említsünk más aspektusokat is. Ne építsünk az egyforma képre a transzcendensről, hanem próbáljunk a másiktól tanulni.
+
+Kísérletezzünk 21. századi teológiákkal - nyílt és relációs teológia, folyamatteológia, Tillich-féle misztika, univerzalizmus, Thomas Jay Oord munkássága a mindenhatóság minősítéséről, René Girard és Jürgen Moltmann munkássága a keresztről. Mindezek komplikálják a képet, és leveszik arról a hangsúlyt, hogy egy embernek kell tudnia mindent Istenről, és vonalzóval lemérni és kockás papíron kiszámolni Őt.
+
+Beszéljünk a Biblia multivokalitásáról. Mutassunk ellentmondó részeket, és értelmezzük a két különböző kontextus szerzői szándékait. Így harcoljunk a Biblia modern, faktuális tévedhetetlensége ellen, ami felesleges körökbe viszi a hívő embert ahelyett, hogy az allegorikus jelentés elvinné Isten titokzatosságának útjára, illetve a kontextuális jelentés megengedné, hogy felfedezze egy nép hullámzó, rögös, és egymással vitatkozó útját ennek az Istennek a megismerése felé. Ezzel együtt vegyük észre az Újszövetség kreatív Tanakh-interpretációját, és hogy mit jelent az, hogy "az Ószövetség nem jósolja meg Jézust, de Jézus betölti az Ószövetséget". Vitatkozzunk modern kreatív interpretációkon, ha belefér az időbeli keretbe.
+
+## A hívők gyülekezeten kívüli élete
+
+A gyülekezet alapvetően nem befolyásolja a hívők azon kívüli életét. Az emberek közösségen belüli megtartása nem élet-halál kérdése, hanem egy lehetőség. A kapcsolódásnak ezt a kapuját tartsuk meg az emberek előtt, hogy a heti egy liturgikus összejövetelen, vagy egyéb időpontokban - az érintettek időbeosztásától függően - találkozzanak, kommunikáljanak. A liturgikus összejövetel a hétköznapoktól való elfordulás, a személyes transzcendens megnyitásának a része, nem feltétlenül az organikus közösségépítésé. Az ilyen jellegű baráti összejövetelek, illetve evangelizáció a hét többi részében történjen, spontán módon. Az organikusan kialakult csoportok kapacitása és lelkiismerte dönti el, hogy hogyan növekednek, hol töltődnek fel, és hol gyakorolnak irgalmasságot a jelenlétükkel, ahol feladják a maguk hasznát, és mások meghallgatására és segítésére szánnak időt. A gyülekezet nem befolyásolja ezeket, nem saját növekedése a célja, hanem hogy ezek az organikus csoportosulások a saját hatáskörükben vigyék Krisztus jelenlétét szóval és tettel.
